@@ -25,7 +25,7 @@
 ### 📫 How to Reach Me
 
 - **Email:** [kathiravank.btech@gmail.com](mailto:kathiravank.btech@gmail.com)
-- **LinkedIn:** [kathir-btech](https://www.linkedin.com/in/kathir-btech)
+- **LinkedIn:** [kathiravankofficial](https://www.linkedin.com/in/kathiravankofficial)
 
 ### 🤝 Let's Collaborate
 
